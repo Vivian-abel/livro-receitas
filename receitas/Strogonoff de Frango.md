@@ -18,7 +18,7 @@
 
  - Champignon
 
- Batata palha e arroz para acompanhar
+ - Batata palha e arroz para acompanhar
 
 ### Modo de Preparo
 
